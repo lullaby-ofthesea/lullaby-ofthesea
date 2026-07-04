@@ -1,4 +1,4 @@
 <p align="center">
   <img src="https://github.com/user-attachments/assets/d13beda5-793f-4dbc-84aa-c17be4c8c1d0" width="100%">
 </p>
-$\color{red}{\text{Welcome to my sweetie strawberries garden!}}$
+᭝ ᨳଓ ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴍʏ ꜱᴡᴇᴇᴛɪᴇ ꜱᴛʀᴀᴡʙᴇʀʀɪᴇꜱ ɢᴀʀᴅᴇɴ!𝜗ৎ
